@@ -1,0 +1,5 @@
+![Screenshot 2024-02-14 221852](https://github.com/SaYanZz0/HR_Problem/assets/88038655/b4b20844-781f-4c0c-b02c-d486e1c04109)
+![Screenshot 2024-02-14 221825](https://github.com/SaYanZz0/HR_Problem/assets/88038655/47c79999-9b90-45a1-a022-8f9865692b7f)
+![Screenshot 2024-02-14 222237](https://github.com/SaYanZz0/HR_Problem/assets/88038655/28f177a3-676a-41b8-921c-5ac6dffbfd3c)
+![Screenshot 2024-02-14 222205](https://github.com/SaYanZz0/HR_Problem/assets/88038655/b25694ad-c8eb-4194-93a6-227611a2deb7)
+![Screenshot 2024-02-14 222303](https://github.com/SaYanZz0/HR_Problem/assets/88038655/581eb1d5-89ee-4b43-948d-8ae9f4da8b4e)
